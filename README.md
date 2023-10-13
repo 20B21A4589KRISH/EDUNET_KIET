@@ -1,1 +1,0 @@
-# EDUNET_KIET
